@@ -4,6 +4,8 @@
 
 ⚁ 𝐍𝐨𝐭 𝐠𝐨𝐨𝐝 𝐚𝐭 𝐬𝐨𝐜𝐢𝐚𝐥𝐢𝐳𝐢𝐧𝐠 𝐰𝐢𝐭𝐡 𝐩𝐞𝐨𝐩𝐥𝐞.☹
 
+![5a4aba4ea8cc672ac789be00a22468f9](https://github.com/user-attachments/assets/17b53a68-04bd-4493-8e60-a947ffddcf47)⁽ᴵ ʷᵒⁿ'ᵗ ᵈᵒ ᵗʰᵃᵗ⁾
+
 ![tumblr_1bf8be79a1c8af121ece72147fbd9cdc_db13b3fb_100](https://github.com/user-attachments/assets/bd42b2f1-9043-4b9f-a9b0-78519ecb4161)
 
 <img width="400" height="25" alt="tumblr_f0a80c13a62ad068937c3dcdf75ada24_3f68830a_400" src="https://github.com/user-attachments/assets/b9e9df9e-5697-44d9-9d83-0e165a696e4e" />
@@ -18,18 +20,6 @@
 
 <img width="400" height="25" alt="tumblr_33db982b40b68fc3669db68619f46d82_d1ed9063_400" src="https://github.com/user-attachments/assets/6b3ef711-5389-474c-b406-06e72761ce6e" />
 
-it's still wip here...
-<!--
-**UnKn0w47/UnKn0w47** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+𝐦𝐲 𝐟𝐫𝐢𝐞𝐧𝐝 𝐦𝐚𝐝𝐞 𝐭𝐡𝐢𝐬↓
 
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+![ed3deaa08c564a0361a1fe933487c56f](https://github.com/user-attachments/assets/009aa241-9463-4eb3-9022-f170ad8e8411)
